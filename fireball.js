@@ -1,0 +1,1 @@
+Burn all the things
